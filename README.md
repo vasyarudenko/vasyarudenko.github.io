@@ -1,2 +1,0 @@
-# vasyarudenko.github.io
-work
